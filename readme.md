@@ -4,4 +4,4 @@
 
 日文原文、中文翻译、PSD文件、嵌字后的成品以及一些相关的图片等
 
-[B站专栏](https://member.bilibili.com/platform/text-read-list?id=284862)
+[B站专栏](https://space.bilibili.com/1942986/article)
